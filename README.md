@@ -2,7 +2,7 @@
 
 Buenas,
 
-Me llamo Javier Garcia,tengo 22 año.
+Me llamo Javier Garcia, tengo 22 años.
 
 Vivo por Saavedra asique tengo buen viaje hasta campus, pero a medrano puedo ir en bicicleta asique no me quejo.
 
